@@ -1,3 +1,3 @@
 # HackRamadhan
 
-![App Screenshot](https://prnt.sc/yARor4GHMTJP)
+![Lightshot](https://prnt.sc/yARor4GHMTJP)
