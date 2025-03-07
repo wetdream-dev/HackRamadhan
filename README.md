@@ -1,3 +1,3 @@
 # HackRamadhan
 
-![Lightshot](https://prnt.sc/yARor4GHMTJP)
+![imgur](https://imgur.com/a/r946wlL)
